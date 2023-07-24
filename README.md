@@ -1,2 +1,2 @@
-# To-do-List 🩷
-![ezgif com-gif-maker (1)](https://github.com/amandaalbez/To-do-List/assets/104281621/ddabfd23-c9bb-4fc9-a1cb-4201ba052bb3)
+# To-do-List 📃💗
+![ezgif com-gif-maker (2)](https://github.com/amandaalbez/To-do-List/assets/104281621/93978e9d-bbd8-44c9-a780-a54f62c38a91)
